@@ -4,6 +4,5 @@
 ## 📫 How to reach me 
   ## Email
        sangramgha007@gmail.com
-        [Linkedin](https://www.linkedin.com/in/sangram-ghadage-404540214)
   ##  linkedin
        https://www.linkedin.com/in/sangram-ghadage-404540214
